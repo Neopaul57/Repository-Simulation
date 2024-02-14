@@ -1,0 +1,1 @@
+Making sure you understand the work. Rushing to finish never guaranteed understanding, because someone might rush to submit whilst they have zero understanding of what their doing. Rather struggle to finnish and pace ones self accordingly.
